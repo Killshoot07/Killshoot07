@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Killshoot07. I chose that nickname when I was kid, then, don't judge me haha.
+- I'm Student at ESCOM(IPN) in Mexico studying Data Science, I'm Mexican of course.
+- I'm 20, my birthday is on 1st April
